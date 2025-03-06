@@ -5,9 +5,8 @@
 
 - 🔭 I’m currently working on **Craftopia**
 
-- 👯 I’m looking to collaborate on **Craftopia**
 
-- 📫 How to reach me **itsamankumar07@gmail.com**
+- 📫 How to reach me **contactamankumar@proton.me**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
